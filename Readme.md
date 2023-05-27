@@ -1,0 +1,1 @@
+Hello friends, another code now coming out of a blog page.
